@@ -1,4 +1,4 @@
-# Hi, I'm Vibhor (Vib) 👋
+# Hi, I'm Vibhor 
 
 ### 🧬 Biology Student | 💻 Aspiring Bioinformatics Engineer | 🚀 Future HealthTech Founder
 
